@@ -58,8 +58,7 @@ Strong in supplier negotiation, sourcing, and cost optimization across IT, mater
 
 ## 📫 Contact
 📧 mathawee.buranapan@gmail.com  
-📞 061-675-0341  
 
 ---
 
-<p align="center">⭐ Open to new opportunities</p>
+
